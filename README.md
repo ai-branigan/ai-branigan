@@ -2,7 +2,7 @@
 - 👀 I’m interested in artificial intelligence
 - 🌱 I’m currently learning everything I can
 - 💞️ I’m looking to collaborate on all things ai
-- 📫 How to reach me? Just visit branigan.io
+- 📫 How to reach me? X is best
 - 😄 Pronouns: matter/antimatter
 - ⚡ Fun fact: I'm a member of the Lonely Goat Running Club
 
