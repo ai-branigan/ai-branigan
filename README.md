@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on all things ai
 - 📫 How to reach me? X is best
 - 😄 Pronouns: matter/antimatter
-- ⚡ Fun fact: I'm a member of the Lonely Goat Running Club
+- ⚡ Fun fact: I'm a human being
 
 <!---
 ai-branigan/ai-branigan is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
